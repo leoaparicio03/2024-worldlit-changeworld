@@ -2,7 +2,7 @@
 <small>**Leonardo Aparicio**</small>  
 <small>World Literature - 2024</small>  
 
-### Progressive Era Issue Selection - Meat Inspection Act
+### Progressive Era Issue - Meat Inspection Act
 
 - Upton Sinclair was a journal investigating the meat industry and what they put in our foods. Soon he exposed them, and the Pure Food and Drug act was created.
 There were many ways during the progressive era to protest and I will list some.
@@ -10,11 +10,13 @@ There were many ways during the progressive era to protest and I will list some.
 - Even the government got involved and they passed the Pure Food and Drug Act, which forced all companies to put what the ingredients of products on the labels.
 - A man named Harvey Washington Wiley, lead the Pure Food and Drug Act. He pushed the food bill in 1906. Before that he was the Chief Chemist of the U.S and would inspect foods for chemicals.
 
-	I Plan to bring A trifold poster and present my issue to the class.
-For my current issue I chose Poaching, because I think poaching should be even more strict and its not fair for animals to be hunted down due to their horns, tusks, blood, etc.
-•	For example, pangolins are in danger of extinction and many locals say that the problem stems from unchecked poaching.
-•	Because Rhino horns are valuable, so many poachers are hunting rhino that some rhino species are extinct.
-	To solve this problem, I plan on making a website to help bring awareness to poaching and the evils of it.  I will try my hardest to bring awareness and maybe nothing will change, but its best if I try.
+### Current Era Issue - Poaching
+I think poaching should be even more strict and its not fair for animals to be hunted down due to their horns, tusks, blood, etc.
+- For example, pangolins are in danger of extinction and many locals say that the problem stems from unchecked poaching.
+- Because Rhino horns are valuable, so many poachers are hunting rhino that some rhino species are extinct.
+
+
+The intent of this website is to bring awareness to the problem of poaching. I will try my hardest to bring awareness and maybe nothing will change, but its best if I try.
 
 	What was wrong with the meat package industry before? 
 •	The working conditions were horrible.
