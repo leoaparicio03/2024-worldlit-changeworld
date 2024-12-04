@@ -1,10 +1,15 @@
-                    How I can change the world
-     	For mine progressive era issue, I chose to do the meat inspection act.
-•	Upton Sinclair was a journal investigating the meat industry and what they put in our foods. Soon he exposed them, and the Pure Food and Drug act was created.
+# How I can Change the World
+<small>**Leonardo Aparicio**</small>  
+<small>World Literature - 2024</small>  
+
+### Progressive Era Issue Selection - Meat Inspection Act
+
+- Upton Sinclair was a journal investigating the meat industry and what they put in our foods. Soon he exposed them, and the Pure Food and Drug act was created.
 There were many ways during the progressive era to protest and I will list some.
-•	A muckraker named Upton Sinclair made a book called the jungle and it exposed the secrets of the meat package industry, and this was one of the biggest protest methods in the progressive era. 
-•	Even the government got involved and they passed the Pure Food and Drug Act, which forced all companies to put what the ingredients of products on the labels.
-•	A man named Harvey Washington Wiley, lead the Pure Food and Drug Act. He pushed the food bill in 1906. Before that he was the Chief Chemist of the U.S and would inspect foods for chemicals.
+- A muckraker named Upton Sinclair made a book called the jungle and it exposed the secrets of the meat package industry, and this was one of the biggest protest methods in the progressive era. 
+- Even the government got involved and they passed the Pure Food and Drug Act, which forced all companies to put what the ingredients of products on the labels.
+- A man named Harvey Washington Wiley, lead the Pure Food and Drug Act. He pushed the food bill in 1906. Before that he was the Chief Chemist of the U.S and would inspect foods for chemicals.
+
 	I Plan to bring A trifold poster and present my issue to the class.
 For my current issue I chose Poaching, because I think poaching should be even more strict and its not fair for animals to be hunted down due to their horns, tusks, blood, etc.
 •	For example, pangolins are in danger of extinction and many locals say that the problem stems from unchecked poaching.
