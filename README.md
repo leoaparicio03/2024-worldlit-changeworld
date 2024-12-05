@@ -15,7 +15,8 @@ There were many ways during the progressive era to protest and I will list some.
 - The working conditions were horrible.
 - Rats would often be mixed in the sausage meat.
 - Machines would work on vats that leaked lard.
-##### How much did the jungle affect the industry?
+##### How much did the jungle affect the industry?  
+
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/The_Jungle_%281906%29_cover.jpg/1200px-The_Jungle_%281906%29_cover.jpg" alt="Jungle Book" width="250" />
 - After the Jungle was released, the meat inspection act was passed and soon lead to the Pure Food and Drug act, which required for products to have label of the ingredients.
 - The government had inspected these meat companies.
