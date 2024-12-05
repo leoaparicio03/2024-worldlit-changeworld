@@ -24,6 +24,8 @@ There were many ways during the progressive era to protest and I will list some.
 - Yes, the industry had horrible conditions for the workers.
 - Since rat meat was mixed in the food, it spread illnesses and caused many people to be sick.
 
+<img src="https://www.docsteach.org/images/documents/2657925/orig_2657925_10236.jpg" alt="Meat Propaganda" width="200" />  
+
 ### Current Era Issue - Poaching
 I think poaching should be even more strict and its not fair for animals to be hunted down due to their horns, tusks, blood, etc.
 - For example, pangolins are in danger of extinction and many locals say that the problem stems from unchecked poaching.
@@ -45,8 +47,6 @@ The intent of this website is to bring awareness to the problem of poaching. I w
 - For now, the best to do is to create more preservations and have armed security to guard these preservations.
 - Another solution is to make laws that are enforce like, if poaching is conducted, then they will serve a 40-year sentence and have all their money and status taken from them to give to the poor. This will cause a sense of dread and mentally break the poachers.
 - I could also write a book about poaching and the effect it has on the ecosystem. 
-
-<img src="https://www.docsteach.org/images/documents/2657925/orig_2657925_10236.jpg" alt="Poaching Propaganda" width="200" />  
 
 <img src="https://science.time.com/wp-content/uploads/sites/12/2014/01/141301-black-rhino-poaching.jpg?w=598" alt="Poached Rhino" width="200" />  
 
