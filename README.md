@@ -36,6 +36,9 @@ The intent of this website is to bring awareness to the problem of poaching. I w
 <img src="https://panthera.org/sites/default/files/blog-post-images/Panthera_Poaching.jpg" alt="Poaching" width="200" />  
 - Poaching is the illegal hunting of animals for their horns, tusks, blubber, blood, etc.…
 ##### Why is poaching an issue?  
+
+<img src="https://static01.nyt.com/images/2018/01/09/science/09SCI-RHINO1/09SCI-RHINO1-superJumbo.jpg" alt="Poachers and Rhino" width="200" />  
+
 - White rhinos are nearly extinct due to poachers. Poachers hunt white rhinos for their horns.
 - Now there are about, 10,000 white rhinos left in the world, and they are estimated to be extinct soon.
 ##### How can I solve poaching?  
