@@ -11,6 +11,7 @@ There were many ways during the progressive era to protest and I will list some.
 - A man named Harvey Washington Wiley, lead the Pure Food and Drug Act. He pushed the food bill in 1906. Before that he was the Chief Chemist of the U.S and would inspect foods for chemicals.
 
 ##### What was wrong with the meat package industry before?  
+<img src="https://static01.nyt.com/images/2018/10/21/books/review/21schlosser/21schlosser-articleLarge.jpg?quality=75&auto=webp&disable=upscale" alt="Meat Packing Propaganda" width="200" />
 - The working conditions were horrible.
 - Rats would often be mixed in the sausage meat.
 - Machines would work on vats that leaked lard.
