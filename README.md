@@ -41,4 +41,4 @@ The intent of this website is to bring awareness to the problem of poaching. I w
 - Another solution is to make laws that are enforce like, if poaching is conducted, then they will serve a 40-year sentence and have all their money and status taken from them to give to the poor. This will cause a sense of dread and mentally break the poachers.
 - I could also write a book about poaching and the effect it has on the ecosystem. 
 
-<img src="https://www.docsteach.org/images/documents/2657925/orig_2657925_10236.jpg" alt"Poaching Propaganda" width="200" />
+<img src="https://www.docsteach.org/images/documents/2657925/orig_2657925_10236.jpg" alt="Poaching Propaganda" width="200" />
