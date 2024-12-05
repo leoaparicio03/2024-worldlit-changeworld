@@ -47,3 +47,5 @@ The intent of this website is to bring awareness to the problem of poaching. I w
 - I could also write a book about poaching and the effect it has on the ecosystem. 
 
 <img src="https://www.docsteach.org/images/documents/2657925/orig_2657925_10236.jpg" alt="Poaching Propaganda" width="200" />  
+
+<img src="https://science.time.com/wp-content/uploads/sites/12/2014/01/141301-black-rhino-poaching.jpg?w=598" alt="Poached Rhino" width="200" />  
