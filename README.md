@@ -49,3 +49,23 @@ The intent of this website is to bring awareness to the problem of poaching. I w
 <img src="https://www.docsteach.org/images/documents/2657925/orig_2657925_10236.jpg" alt="Poaching Propaganda" width="200" />  
 
 <img src="https://science.time.com/wp-content/uploads/sites/12/2014/01/141301-black-rhino-poaching.jpg?w=598" alt="Poached Rhino" width="200" />  
+
+## Works Cited  
+
+Bielakowski, Rae Sikula. "Jungle, The." Dictionary of American History, edited by Stanley I. Kutler, 3rd ed., vol. 4, Charles Scribner's Sons, 2003, pp. 500-501. Gale In Context: U.S. History, link.gale.com/apps/doc/CX3401802215/UHIC?u=mari25641&sid=bookmark-UHIC&xid=9caaa7ca. Accessed 21 Nov. 2024.  
+<br />
+
+"Pure Food and Drug Act." Gale U.S. History Online Collection, Gale, 2023. Gale In Context: U.S. History, link.gale.com/apps/doc/XKHZNF748538642/UHIC?u=mari25641&sid=bookmark-UHIC&xid=7faf1811. Accessed 21 Nov. 2024.  
+<br />
+
+"Pangolins risk extinction in Khotang." Kathmandu Post [Kathmandu, Nepal], 31 Mar. 2024, p. NA. Gale In Context: Global Issues, link.gale.com/apps/doc/A788175108/GIC?u=mari25641&sid=bookmark-GIC&xid=350bc022. Accessed 22 Nov. 2024.  
+<br />
+
+"How one tech startup aims to disrupt the market for illegal rhino horns." All Things Considered, 22 Feb. 2024, p. NA. Gale In Context: Global Issues, link.gale.com/apps/doc/A783594339/GIC?u=mari25641&sid=bookmark-GIC&xid=ee496ca9. Accessed 22 Nov. 2024.  
+<br />
+
+"Sinclair Publishes The Jungle, 1906." DISCovering World History, Gale, 2003. Gale In Context: High School, link.gale.com/apps/doc/EJ2105240693/SUIC?u=mari25641&sid=bookmark-SUIC&xid=b56f2c46. Accessed 2 Dec. 2024.  
+<br />
+
+"Northern white rhinoceros (Ceratotherium simum cottoni)." Encyclopedia of Endangered Species, vol. 2, Gale, 2009. Gale In Context: High School, link.gale.com/apps/doc/CV2644720309/SUIC?u=mari25641&sid=bookmark-SUIC&xid=f1bbfdd8. Accessed 2 Dec. 2024.  
+<br />
